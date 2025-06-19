@@ -1,0 +1,1 @@
+# Power-Revolution-no-manpower-requirement-hack-guide
